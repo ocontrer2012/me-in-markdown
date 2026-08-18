@@ -12,3 +12,4 @@ Games that I play is Unseen Liminality, Read Dead Redemtion 1 & 2, Cuphead, Ghos
 
 ***Spotify Playlist***
 
+### [[Click me to hear playlist]](https://open.spotify.com/playlist/6ijtRex1JIeASWSSjfEPO1?si=jvLoblteS3CcNg_maZXYSQ&utm_source=copy-link&pi=F9lbMr3jTNev1).
