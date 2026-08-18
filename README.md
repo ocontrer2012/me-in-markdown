@@ -5,7 +5,7 @@ Hi my name is Oscar Contreras and I am currently in 9th grader freshman in Chats
 
 My favorite memory with friends in the summer was when I went to camping with friends and stayed for about only 2 days since I get to hangout and get to do fishing for the first time. A personal achievement I made was when I learned how to play the trumpet after 3 years of playing in band. Another personal achievement I made was when I learned how to bake because I have started to learn how to make cookies and later on I can make even more achievements that I can learn. My favorite movies are the Backrooms, Obsession, and Nacho Libre. My favorite foods are tortas, burritos, fish tacos, pasta, pizza, burgers, and much more.
 
-Games that I play is Unseen Liminality, Read Dead Redemtion 1 & 2, Cuphead, Ghost of Tsushima, Minecraft, Mario games, Zelda games, and Sonic games. 
+Games that I play is Unseen Liminality, Read Dead Redemtion 1 & 2, Cuphead, Ghost of Tsushima, Minecraft, Mario games, Zelda games, and Sonic games. Sometimes in my free time I like to learn how to sow and watch TV. I like to travel since it feels nice to explore somewhere new and have a great time with family if it is a family vacation. Fun fact about me is that I have a little brother and his name is Osiel. Thank you for reading this aboutb me page and I hope you do well 👍.
 
 ### ***The college I want to go to in the future***
 ![image of what college I want to go to](bridgs-final-4-web-1024x723.jpg)
